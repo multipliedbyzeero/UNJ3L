@@ -1,4 +1,4 @@
-# Yo, it's UNJ!
+# Yo, it's zeero!
 ## idk heres things i like
 
 - Coding (duh)
